@@ -1,0 +1,1 @@
+# genshinwiki-pages
